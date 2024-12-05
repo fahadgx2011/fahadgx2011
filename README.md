@@ -1,4 +1,4 @@
-## Hello guys 🖐️🙂
+## Hello 🖐️🙂
 
 <!--
 **fahadgx2011/fahadgx2011** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
